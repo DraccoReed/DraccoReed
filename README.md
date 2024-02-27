@@ -1,7 +1,7 @@
 # DraccoReed.github.io
 ## All Character Ownerships Reserved to Hypergryph
 ### What? why are you even here
-#### Yeah just testing
+#### Yeah I just started this thing
 
 ## horizontal line insert
 
